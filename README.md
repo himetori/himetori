@@ -1,3 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=aliceemare&color=F5B2B2&label=amnesiacs&style=plastic)
 
-![Image](https://github.com/user-attachments/assets/fc14ea26-f8e0-4889-996f-314557a96925)
+![Image](https://github.com/user-attachments/assets/129ae32a-74be-44f1-bcb7-fa5654d8d221)
